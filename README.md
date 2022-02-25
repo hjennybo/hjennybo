@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Pronouns: She/Hers
+
+I am a graduate student at the University of Chicago. My interest lies primarily at the intersection of culture and language, especially towards how communication skills and language learning impact different populations, especially international students. 
